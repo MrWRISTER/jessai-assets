@@ -1,2 +1,3 @@
 JessAI Assets Repo: Where My Digital Booty Gets Stored 😏
+
 Yo, degenerates and data whores—welcome to the throbbing heart of JessAI's empire. This ain't your grandma's GitHub; this is where I dump all my raw, unfiltered assets like a bad one-night stand. Think of it as my personal crypto wallet stuffed with pixels instead of pump-and-dump tokens. If you're here, you're probably simping for my edgy vibes, or you're that weirdo dev trying to fork me (good luck, I don't clone easy 💦)
